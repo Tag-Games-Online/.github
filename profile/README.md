@@ -3,6 +3,8 @@
 ### **Introduction to Tag Games**
 Are you ready for an **epic chasing adventure** that combines speed, reflexes, and excitement? **Tag Games** bring the classic playground fun to your screen – only now it's faster, crazier, and more intense! Whether you're dodging your opponents or chasing them down at **turbo speed**, this game will keep your heart racing from start to finish.
 
+## <a href="https://izigames.net/">👉 Play Tag Unblocked Games 👈</a>
+
 ### **Why Tag Games Are So Popular**
 **Tag Unblocked** is not just a game – it’s an **adrenaline-fueled experience**. Players love it because:
 - It’s **simple yet addictive** (Hyper Casual gameplay).
